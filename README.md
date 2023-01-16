@@ -1,5 +1,5 @@
 
-# Hi, I'm Timurhan! 👋
+# Hi, I'm Timur! 👋
 
 
 ## 🚀 About Me
